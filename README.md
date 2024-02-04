@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @davidthangyeager
 - 👀 I’m interested in coding and programming
-- 🌱 I’m currently learning Informatics Fudametals at Ivy Tecjh
+- 🌱 I’m currently learning Informatics Fudametals at Ivy Tech
 - 💞️ I’m looking to collaborate on anything and with anyone.
 - 📫 How to reach me instagram : DavidKLTmu
 - 😄 Pronouns : He/Him
